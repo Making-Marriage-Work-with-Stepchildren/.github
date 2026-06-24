@@ -68,8 +68,6 @@ Make it a habit to check in with each other regularly. Not just about the kids, 
 
 When conflict comes, and it will, try to stay on the same side of it. You are not fighting each other. You are two people trying to figure out a hard situation together. That framing changes everything.
 
-Blended family life is not for the faint of heart. But it is absolutely possible to build something lasting, warm, and real. It takes patience, honesty, and a genuine commitment to keeping your marriage strong even when everything around it feels uncertain. Couples who make it through the hard early years often describe their blended family as one of the greatest achievements of their lives. That is not an accident. It is the result of choosing each other and this family, over and over again, even on the days it is not easy.
-
 No matter how broken things may feel right now, your marriage does not have to end here. The distance, the arguments, the silence, and the feeling that you’re losing the person you once loved so deeply can change. Many couples have stood exactly where you are today and found their way back to each other stronger, closer, and more connected than before.
 
 The truth is, saving a marriage rarely happens by accident. It happens when someone decides the relationship is worth fighting for and takes the first step toward real change. And if you’re still searching for answers and still hoping things can get better, that already says something powerful about your love and commitment.
